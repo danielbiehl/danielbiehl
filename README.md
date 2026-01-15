@@ -11,9 +11,9 @@ I am a **Product Marketing & Digital Strategy Leader** bridging the gap between 
 
 ### Work Samples
 * **IoT Intelligence Platform:** Led GTM for a real-time monitoring platform ($100M+ revenue impact).
-* **AI Service Tools:** Spearheaded expansion of AI-assist tools to 100% of North American customer base.
+* **AI Service Tools:** Spearheaded expansion of Virtual Assist tools for remote support options to 100% of North American customer base.
 
-*(Detailed portfolio and work samples available via request to respect employer confidentiality.)*
+*(Detailed portfolio and work samples available via request.)*
 
 ---
 *Connect with me on [LinkedIn](https://www.linkedin.com/in/danielbiehl)*
